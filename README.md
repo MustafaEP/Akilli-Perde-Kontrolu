@@ -1,0 +1,1 @@
+# Akilli-Perde-Kontrolu
